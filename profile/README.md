@@ -1,4 +1,15 @@
-## Hi there 👋
+# TUAK ADALAH NYAWA
+###
+
+Tuak tuak tuak tuak
+Tuak adalah nyawa
+Yening awai sing maan tuak
+Hidupe serasa ada kuangan
+
+Tuak tuak tuak tuak
+Tuak adalah nyawa
+Yening awai sing maan tuak
+Hidupe serasa ada kuangan
 
 <!--
 
